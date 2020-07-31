@@ -82,7 +82,7 @@
 ![](morgan.gif)
 ![](msj.gif)
 ![](myb.gif)
-![](nigga please.gif)
+![](niggaplease.gif)
 ![](no.gif)
 ![](nolike.gif)
 ![](nope.gif)
